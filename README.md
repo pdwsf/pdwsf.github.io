@@ -75,7 +75,6 @@ My favorite song: `Cruel Summer`
 
 My favorite song: `cardigan`
 
-# 2020
 *evermore*
 
 ![alt text](https://upload.wikimedia.org/wikipedia/en/0/0a/Taylor_Swift_-_Evermore.png)
@@ -93,7 +92,6 @@ My favorite song: `champagne problems`
 
 My favorite song from the vault: `Mr. Perfectly Fine`
 
-# 2021
 *Red (Taylor's Version)*
 
 ![alt text](https://upload.wikimedia.org/wikipedia/en/4/47/Taylor_Swift_-_Red_%28Taylor%27s_Version%29.png)
@@ -112,3 +110,9 @@ My favorite song from the vault: `All Too Well (10 Minute Version)`
 My favorite song: `Bejeweled`
 
 ---
+
+This marks the end of our trip! Truly, her works are outstanding and deserving of the support and love from the entire world. As a swiftie, I'm very proud of her achievements and I wish her all the best. 
+
+## Much Love, Sharbel :heart:
+
+### Au revoir! 
