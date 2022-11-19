@@ -80,4 +80,35 @@ My favorite song: `cardigan`
 
 ![alt text](https://upload.wikimedia.org/wikipedia/en/0/0a/Taylor_Swift_-_Evermore.png)
 
-**
+**Just like foklore, evermore is also a surprise album and released at the same year as foklore making them sister albums. She described Evermore as an offshoot of "the folklorian woods" and as an anthology of tales about love, marriage, infidelity, and grief, exploring the complexities of human emotion.**
+
+My favorite song: `champagne problems`
+
+# 2021
+*Fearless (Taylor's Version)*
+
+![alt text](https://upload.wikimedia.org/wikipedia/en/5/5b/Fearless_%28Taylor%27s_Version%29_%282021_album_cover%29_by_Taylor_Swift.png)
+
+**Fearless (Taylor's Version) is her first re-recorded album. It's a re-recording of her second studio album, Fearless (2008) after losing her rights to her first 6 albums.**
+
+My favorite song from the vault: `Mr. Perfectly Fine`
+
+# 2021
+*Red (Taylor's Version)*
+
+![alt text](https://upload.wikimedia.org/wikipedia/en/4/47/Taylor_Swift_-_Red_%28Taylor%27s_Version%29.png)
+
+**Red (Taylor's Version) is here second re-recorded album. It's a re-recording of her fourth studio album, Red (2012). This album contains the 10-minute-long, unabridged version of "All Too Well."**
+
+My favorite song from the vault: `All Too Well (10 Minute Version)`
+
+# 2022
+*Midnights*
+
+![alt text](https://upload.wikimedia.org/wikipedia/en/9/9f/Midnights_-_Taylor_Swift.png)
+
+**Midnights, released last October 21, 2022, is her tenth studio album. Inspired by the "sleepless nights" of her life, Midnights contains confessional yet cryptic lyrics, ruminating themes such as anxiety, insecurity, self-criticism, self-awareness, insomnia, and self-confidence.**
+
+My favorite song: `Bejeweled`
+
+---
