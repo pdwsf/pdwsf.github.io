@@ -75,6 +75,7 @@ My favorite song: `Cruel Summer`
 
 My favorite song: `cardigan`
 
+
 *evermore*
 
 ![alt text](https://upload.wikimedia.org/wikipedia/en/0/0a/Taylor_Swift_-_Evermore.png)
@@ -91,6 +92,7 @@ My favorite song: `champagne problems`
 **Fearless (Taylor's Version) is her first re-recorded album. It's a re-recording of her second studio album, Fearless (2008) after losing her rights to her first 6 albums.**
 
 My favorite song from the vault: `Mr. Perfectly Fine`
+
 
 *Red (Taylor's Version)*
 
@@ -113,6 +115,6 @@ My favorite song: `Bejeweled`
 
 This marks the end of our trip! Truly, her works are outstanding and deserving of the support and love from the entire world. As a swiftie, I'm very proud of her achievements and I wish her all the best. 
 
-## Much Love, Sharbel :heart:
+## Much Love, Sharbel 
 
 ### Au revoir! 
