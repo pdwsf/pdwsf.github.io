@@ -112,8 +112,11 @@ My favorite song from the vault: `All Too Well (10 Minute Version)`
 My favorite song: `Bejeweled`
 
 ---
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/3dgpO6mDWzdpMhyttrVi9t?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 ---
+
 This marks the end of our trip! Truly, her works are outstanding and deserving of the support and love from the entire world. As a swiftie, I'm very proud of her achievements and I wish her all the best. 
 
 ## Much Love, Sharbel 
